@@ -6,7 +6,12 @@
 
 
  ~
-Im pretty awkward,, please be patient with me 😿 
+Im pretty awkward,, please be patient with me 😿~
+
+~ C+H/INT PLEASEPELASWPLEASE PELAS EPLEASE PLEASEEEEE PLEASE PLEASE I BEG. ON MY KNEES.  
+
+~
+I'd appreciate w2i!! So i know you're talking to me ^_^ . I may have l8 responses tho,,
 
 ~ 
 If you want to find me (youve already have likely) im mostly around the Dandy's World area at spawn! 
@@ -16,6 +21,7 @@ Though occasionally im at the Danganronpa area, or with a friend of mine! <3
 
 if it matters . Im putting my F/O LIST here 👀 ,,,, read my strawpage read my strawpage read my strawpage read m
 - Tsurugi Kinjo (DRA . SelectiveSharing Gachikoi. Doubles iwcuf)
+
  ! [SHARING WITH ALL THE BELOW]!
   - Leon Kuwata (DRTHH)
   - Kai Satou (YTTD)
