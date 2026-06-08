@@ -14,4 +14,19 @@ Though occasionally im at the Danganronpa area, or with a friend of mine! <3
 
 
 
+if it matters . Im putting my F/O LIST here 👀 ,,,, read my strawpage read my strawpage read my strawpage read m
+- Tsurugi Kinjo (DRA . SelectiveSharing Gachikoi. Doubles iwcuf)
+ ! [SHARING WITH ALL THE BELOW]!
+  - Leon Kuwata (DRTHH)
+  - Kai Satou (YTTD)
+  - Joe Tazuna (YTTD)
+  - Haruhiko Kobashikawa (DRA)
+  - KAITO (Vocaloid)
+  - Charles Cuevas (DRDT)
+  - David Chiem + Xander Matthews (DRDT)
+  - Dyle Timesly (DW)
+    + Platonic Yume with Homura Akemi . OCXXCC with Hanzo Kisaragi
+  
+
+  
 ,,,, im still working on this . uhm ,,,, FOLLOW ME ON TWITTER AND TUMBLR!!!!!!
