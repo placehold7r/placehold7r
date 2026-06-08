@@ -32,7 +32,9 @@ if it matters . Im putting my F/O LIST here 👀 ,,,, read my strawpage read my 
   - David Chiem + Xander Matthews (DRDT)
   - Dyle Timesly (DW)
     + Platonic Yume with Homura Akemi . OCXXCC with Hanzo Kisaragi
-  
 
+<img width="4992" height="2130" alt="Untitled2046_20260608152741" src="https://github.com/user-attachments/assets/55ddf48f-deb2-4245-9fa1-fef67df569b7" />
+
+happy pride to The Fags
   
 ,,,, im still working on this . uhm ,,,, FOLLOW ME ON TWITTER AND TUMBLR!!!!!!
