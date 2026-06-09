@@ -10,6 +10,8 @@ Im pretty awkward,, please be patient with me 😿~
 
 ~ C+H/INT PLEASEPELASWPLEASE PELAS EPLEASE PLEASEEEEE PLEASE PLEASE I BEG. ON MY KNEES.  
 
+~ Ships are okay!! i lovethem!! (Unless said otherwise......)
+
 ~
 I'd appreciate w2i!! So i know you're talking to me ^_^ . I may have l8 responses tho,,
 
