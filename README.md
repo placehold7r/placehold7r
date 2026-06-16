@@ -26,7 +26,8 @@ im still figuring out what to put here . Uhm. yeah. Hi
 
 
   --- ***DNI DNI DNI DO NOT INTERACT ::*** 
-  basic criteria, soulbasket, ***tsurugi kinjo x any sdra2/dra woman*** (excludes rei), jturo . over 18 **iwcuf** . tsurugi doubles **iwec unless close friends**
+  basic criteria, soulbasket, ***tsurugi kinjo x any sdra2/dra woman*** (excludes rei . This is a heavy dni i do not want to see you at all!!! go away!!) , jturo . over 18 iwcuf . tsurugi doubles iwec unless close friends
+  
 
 ----
 <img width="222" height="126" alt="IMG_5255" src="https://github.com/user-attachments/assets/d5613dba-d7aa-4f25-8812-b962c5c81501" /> <img width="222" height="126" alt="IMG_5254" src="https://github.com/user-attachments/assets/80018c42-47a5-427d-beaf-39205295e27d" /> <img width="222" height="126" alt="IMG_5253" src="https://github.com/user-attachments/assets/1d20ec1f-70f6-41a4-b26c-dc85dc184364" />
