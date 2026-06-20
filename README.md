@@ -2,7 +2,7 @@
 
 <img width="640" height="51" alt="IMG_3564" src="https://github.com/user-attachments/assets/198e8622-ea5e-406b-9f33-d4a68f29e59c" />
 
-my names Beven / Razzle / Dazzle . { rnd fictkin . he/pup pronouns } 
+my names Beven ! { or raz. Or daz.... idkk . he/pup pronouns } 
 
 
 i follow back !! ( i do take a glance at profiles before following though )
