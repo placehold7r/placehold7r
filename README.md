@@ -1,5 +1,5 @@
 <img width="2000" height="2000" alt="Untitled2065_20260615164811" src="https://github.com/user-attachments/assets/1bb6f652-9293-4211-8fc4-e6255eea31b6" />
-[ current layout : cupid (dwoc)]
+
 <img width="640" height="51" alt="IMG_3564" src="https://github.com/user-attachments/assets/198e8622-ea5e-406b-9f33-d4a68f29e59c" />
 
 my names Beven / Razzle / Dazzle . { rnd fictkin . he/pup pronouns } 
@@ -8,8 +8,8 @@ my names Beven / Razzle / Dazzle . { rnd fictkin . he/pup pronouns }
 i follow back !! ( i do take a glance at profiles before following though )
 
 
-the places you'll most likely see me is the dandys world area at spawn , danganronpa area , or with a friend somewhere else !! 
-
+the places you'll most likely see me is the dandys world area at spawn , around the among us show area , danganronpa area , or with a friend somewhere else !! ill say it now though - even if my most common spot is the dwspawn: dw fandom please iwc unless i already know you!
+its mainly for personal reasons - most (maybe none) of you never know how to behave and its always the same old bullshit drama with you guys. So. 
 
 im a really socially awkward person, please be patient with me ouu,,,, c+h / int freely thoPLEASPELASPELEASPELEAPLEPLEASEEEEEPLEASEPLEASEPLEASE I WANT FRIENDDS
 
