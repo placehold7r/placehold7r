@@ -9,7 +9,7 @@ i follow back !! ( i do take a glance at profiles before following though )
 
 
 the places you'll most likely see me is the dandys world area at spawn , around the among us show area , danganronpa area , or with a friend somewhere else !! ill say it now though - even if my most common spot is the dwspawn: dw fandom please iwc unless i already know you!
-its mainly for personal reasons - most (maybe none) of you never know how to behave and its always the same old bullshit drama with you guys. So. 
+its mainly for personal reasons since i feel uncomfy around most of you guys ,, blegh 
 
 im a really socially awkward person, please be patient with me ouu,,,, c+h / int freely thoPLEASPELASPELEASPELEAPLEPLEASEEEEEPLEASEPLEASEPLEASE I WANT FRIENDDS
 
