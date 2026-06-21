@@ -5,13 +5,13 @@
 my names Beven ! { or raz. Or daz.... idkk . he/pup pronouns } 
 
 
-i follow back !! ( i do take a glance at profiles before following though )
+i take a glance at profiles before deciding if im gonna follow / interact with you keep that in mind!!! 
 
 
 the places you'll most likely see me is the dandys world area at spawn , around the among us show area , danganronpa area , or with a friend somewhere else !! ill say it now though - even if my most common spot is the dwspawn: dw fandom please iwc unless i already know you!
 its just most of you never know how to behave and i would rather avoid wasting my time on people Like that so. Whatever
 
-im a really socially awkward person, please be patient with me ouu,,,, c+h / int freely thoPLEASPELASPELEASPELEAPLEPLEASEEEEEPLEASEPLEASEPLEASE I WANT FRIENDDS
+im a really socially awkward person,, i get scared to interact a lot so please be patient with me 😿😿 c+h and int freely though PLEASEPLEASEPELASEEPLEASEEEEEE PLEASEEE 
 
 <img width="640" height="51" alt="IMG_3563" src="https://github.com/user-attachments/assets/e097afa5-c81f-4c4f-aa5d-d25b1c8e49fd" />
 
