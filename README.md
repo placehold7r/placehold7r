@@ -15,7 +15,7 @@ im a really socially awkward person,, i get scared to interact a lot so please b
 
 <img width="640" height="51" alt="IMG_3563" src="https://github.com/user-attachments/assets/e097afa5-c81f-4c4f-aa5d-d25b1c8e49fd" />
 
-i really like drawing , all the art here is by me infact ... (if ure wondering Who Tf Is That Envelope its my dwoc,,, i lovehim alot......)
+ oh yeah if ure wondering Who Tf Is That Envelope its my dwoc,,, i lovehim alot......
 
 
 if you want to see me anywhere besides pt my other socials go by the same user (aka placehold7r) . hmu !!
