@@ -1,21 +1,21 @@
-<img width="2000" height="2000" alt="Untitled2065_20260615164811" src="https://github.com/user-attachments/assets/1bb6f652-9293-4211-8fc4-e6255eea31b6" />
+<img width="490" height="343" alt="IMG_3606" src="https://github.com/user-attachments/assets/c12b18d5-37c1-4f77-a533-ffd242724dfd" />
+<img width="1000" height="64" alt="IMG_3611" src="https://github.com/user-attachments/assets/cc4f3997-5856-4089-8d18-c557a133d4f0" />
 
-<img width="640" height="51" alt="IMG_3564" src="https://github.com/user-attachments/assets/198e8622-ea5e-406b-9f33-d4a68f29e59c" />
 
-my names Beven ! { or raz. Or daz.... idkk . he/pup pronouns } 
+
+my names Beven !  He / Pup pronouns . NO FEMININE TERMS 
 
 
 i take a glance at profiles before deciding if im gonna follow / interact with you keep that in mind!!! 
 
 
 the places you'll most likely see me is the dandys world area at spawn , around the among us show area , danganronpa area , or with a friend somewhere else !! ill say it now though - even if my most common spot is the dwspawn: dw fandom please iwc unless i already know you!
-its just most of you never know how to behave and i would rather avoid wasting my time on people Like that so. Whatever
+its just most of you never know how to behave and constantly bring up drama id rather avoid and  i dont want to waste my time Like that so. Whatever
+
+<img width="1000" height="64" alt="IMG_3615" src="https://github.com/user-attachments/assets/17e3a14f-2bc3-425b-8256-5c1c737746b1" />
+
 
 im a really socially awkward person,, i get scared to interact a lot so please be patient with me 😿😿 c+h and int freely though PLEASEPLEASEPELASEEPLEASEEEEEE PLEASEEE 
-
-<img width="640" height="51" alt="IMG_3563" src="https://github.com/user-attachments/assets/e097afa5-c81f-4c4f-aa5d-d25b1c8e49fd" />
-
- oh yeah if ure wondering Who Tf Is That Envelope its my dwoc,,, i lovehim alot......
 
 
 if you want to see me anywhere besides pt my other socials go by the same user (aka placehold7r) . hmu !!
@@ -23,7 +23,7 @@ if you want to see me anywhere besides pt my other socials go by the same user (
 
 im still figuring out what to put here . Uhm. yeah. Hi 
 
-<img width="640" height="51" alt="IMG_3564" src="https://github.com/user-attachments/assets/b1287ccb-8e76-444d-b9d3-f70b8bffaa5c" />
+<img width="1000" height="64" alt="IMG_3613" src="https://github.com/user-attachments/assets/3a18bbf4-58c1-4758-8997-84976919e5c8" />
 
 
 
@@ -35,8 +35,6 @@ i block/hide freely pretty much . wheter im in your dni or youre in mine: it doe
   
 
 ----
-<img width="222" height="126" alt="IMG_5255" src="https://github.com/user-attachments/assets/d5613dba-d7aa-4f25-8812-b962c5c81501" /> <img width="222" height="126" alt="IMG_5254" src="https://github.com/user-attachments/assets/80018c42-47a5-427d-beaf-39205295e27d" /> <img width="222" height="126" alt="IMG_5253" src="https://github.com/user-attachments/assets/1d20ec1f-70f6-41a4-b26c-dc85dc184364" />
+<img width="90" height="49" alt="IMG_3608" src="https://github.com/user-attachments/assets/06d59106-a373-4503-a50f-72dd01f0c871" />
+<img width="92" height="50" alt="IMG_3607" src="https://github.com/user-attachments/assets/7ae2ed10-dea4-4ad7-9e4c-edd2d330f5d5" /><img width="99" height="93" alt="IMG_3610" src="https://github.com/user-attachments/assets/03af8247-1e39-4755-babd-e6b26caa194f" />
 
-
-
-<img width="850" height="50" alt="IMG_3560" src="https://github.com/user-attachments/assets/19ce941e-7c2a-434b-becd-38b7986d48c2" />
