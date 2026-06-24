@@ -29,7 +29,7 @@ im still figuring out what to put here . Uhm. yeah. Hi
 
 
   --- ***DNI DNI DNI DO NOT INTERACT ::*** 
-  basic criteria, soulbasket, ***tsurugi kinjo x any sdra2/dra woman*** (excludes rei . This is a heavy dni i do not want to see you at all!!! go away!!) , jturo . over 18 iwcuf . tsurugi doubles iwec unless close friends
+  basic criteria, soulbasket, ***tsurugi kinjo x any sdra2/dra woman*** (excludes rei and is incredibly targeted at Akane/Tsurugi IHATEYOU . This is a heavy dni i do not want to see you at all!!! go away!!) , jturo . over 18 iwcuf . tsurugi doubles iwec unless close friends
 
 i block/hide freely pretty much . wheter im in your dni or youre in mine: it doesnt matter [unless, you interact first . if so its kindaawkward....!! ] 
   
