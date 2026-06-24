@@ -18,7 +18,7 @@ its just most of you never know how to behave and constantly bring up drama id r
 im a really socially awkward person,, i get scared to interact a lot so please be patient with me 😿😿 c+h and int freely though PLEASEPLEASEPELASEEPLEASEEEEEE PLEASEEE 
 
 
-if you want to see me anywhere besides pt my other socials go by the same user (aka placehold7r) . hmu !!
+if you want to see me anywhere besides pt my other socials go by the same user (aka placehold7r) . hmu !! (speaking of , heres my artfight : https://artfight.net/~placehold7r ) 
 
 
 im still figuring out what to put here . Uhm. yeah. Hi 
