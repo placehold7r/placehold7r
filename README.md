@@ -9,8 +9,7 @@ my names Beven !  He / Pup pronouns . NO FEMININE TERMS
 i take a glance at profiles before deciding if im gonna follow / interact with you keep that in mind!!! 
 
 
-the places you'll most likely see me is the dandys world area at spawn , around the among us show area , danganronpa area , or with a friend somewhere else !! ill say it now though - even if my most common spot is the dwspawn: dw fandom please iwc unless i already know you!
-its just most of you never know how to behave and constantly bring up drama id rather avoid and  i dont want to waste my time Like that so. Whatever
+the places you'll most likely see me is the dandys world area at spawn , around the among us show area , danganronpa area , or with a friend somewhere else !! ill say it now though - even if my most common spot is the dwspawn: dw fandom please iwc/dni unless i already know you!
 
 <img width="1000" height="64" alt="IMG_3615" src="https://github.com/user-attachments/assets/17e3a14f-2bc3-425b-8256-5c1c737746b1" />
 
