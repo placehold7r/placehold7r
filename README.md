@@ -8,4 +8,4 @@ Linked strawpage has more info such as my DNI and. other stuff. Check it out ple
 ----------
 
 pfp : youmademydawn09 on tumblr + twt
-my other socials go by the same name (placehold7r) . 
+my other socials go by the same name (placehold7r) 
