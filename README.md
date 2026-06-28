@@ -3,4 +3,4 @@
 BEVEN - HE / PUP .
 IM SOCIALLY AWKWARD, PLEASE BE PATIENT WITH ME! ( **C+H and INT freely** tho, much love!!)
 
-Strawpage (WHICH IS A WIP) has more info such as my DNI and. other stuff. 
+Linked strawpage has more info such as my DNI and. other stuff. Check it out pleasee
