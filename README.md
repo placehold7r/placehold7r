@@ -3,7 +3,9 @@
 BEVEN - HE / PUP . MINOR !!
 Im socially awkward + quite sensitive!! i can take a lot of things to heart! Please be patient with me.  ( **C+H and INT freely** tho, much love!!,, unless i say so,, uhm)
 
-Linked strawpage has more info such as my DNI and. other stuff. Check it out pleasee
+dni jturo , if u ship tsurugi kinjo w any woman romantically besides rei , basic criteria tbh just dont be an asshole and youre good to go . tsurugi doubles and dandys world fandom iwec (dw fandom especially) 
+
+my interests change a lot but atm im very into alnst, phighting, dra/sdra2 and drdt !! - you can find me near the alnst or danganronpa area . 
 
 ----------
 
