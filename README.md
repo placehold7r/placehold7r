@@ -1,4 +1,4 @@
-<img width="340" height="340" alt="IMG_3862" src="https://github.com/user-attachments/assets/36c3c010-2909-42fc-90d0-108904355a4b" />           
+<img width="340" height="340" alt="IMG_3862" src="https://github.com/user-attachments/assets/36c3c010-2909-42fc-90d0-108904355a4b" />           siiighhhh.. idk how to make this look pretty 
 
 
 **BEVEN** , HE / PUP 
@@ -11,6 +11,14 @@ my interests change a lot but atm im very into alnst, phighting, dra/sdra2 and d
 
 ----------
 
-pfp : legalizesendingnukes on pin + tt okay? okay 
+pfp : legalizesendingnukes on pin, okay? okay [they have a tt too]
 
 my other socials go by the same name (placehold7r) 
+
+
+<img width="99" height="57" alt="IMG_3928" src="https://github.com/user-attachments/assets/8c6d0470-a44e-4f0d-9c33-3c413ee8bc32" />
+<img width="101" height="57" alt="IMG_3930" src="https://github.com/user-attachments/assets/66d58806-6870-4c96-957a-d4a4c4b5b67c" />
+
+
+
+
