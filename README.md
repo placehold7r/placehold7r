@@ -5,6 +5,8 @@
 
 Im socially awkward + quite sensitive!! i can take a lot of things to heart! Please be patient with me.( **C+H and INT freely** tho, much love!!,, unless pony name say otherwise,,,,er)
 
+heavy yuki maeda (sdra2) kin - i kin others too ,  kinji uehara n medkit (👀) for example
+
 dni jturo , if u ship tsurugi kinjo w any woman romantically besides rei , basic criteria tbh just dont be an asshole and youre good to go . tsurugi doubles and dandys world fandom iwec (dw fandom especially) OH YEAH speaking of dw if youre gonna constantly bring up the downfall and drama around me uhmm dont bother. okay
 
 my interests change a lot but atm im very into alnst, phighting, dra/sdra2 and drdt !! - you can find me near the alnst or danganronpa area . 
