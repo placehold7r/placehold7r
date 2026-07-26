@@ -7,7 +7,7 @@ Im socially awkward + quite sensitive!! i can take a lot of things to heart! Ple
 
 *heavy yuki maeda (sdra2) kin* - i kin others too ,  kinji uehara n medkit for example
 
-dni jturo , if u ship tsurugi kinjo w any woman romantically besides rei , basic criteria tbh just dont be an asshole and youre good to go . tsurugi doubles and dandys world fandom iwec (dw fandom especially) OH YEAH speaking of dw if youre gonna constantly bring up the downfall and drama around me uhmm dont bother. okay
+ dni dwfandom unless friends, basic dni criteria tbh just dont be an asshole and youre good to go . 18+ iwcuf, romantic tsurugi doubles iwec
 
 my interests change a lot but atm im very into alnst, phighting, dra/sdra2 and drdt !! - you can find me near the alnst or danganronpa area . 
 
