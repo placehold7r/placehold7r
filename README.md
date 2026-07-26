@@ -3,6 +3,8 @@
 
 **BEVEN** , HE / PUP 
 
+i tend to follow after a glance at profiles yay
+
 Im socially awkward + quite sensitive!! i can take a lot of things to heart! Please be patient with me.( **C+H and INT freely** tho, much love!!,, unless pony name say otherwise,,,,er)
 
 *heavy yuki maeda (sdra2) kin* - i kin others too ,  kinji uehara n medkit for example
