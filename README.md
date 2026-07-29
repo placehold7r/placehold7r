@@ -1,17 +1,15 @@
-<img width="340" height="340" alt="IMG_3862" src="https://github.com/user-attachments/assets/36c3c010-2909-42fc-90d0-108904355a4b" />           siiighhhh.. idk how to make this look pretty 
 
 
-**BEVEN** , HE / PUP 
+
+**BEVEN . YUKI . MED** , HE / PUP 
 
 i tend to follow after a glance at profiles yay
 
 Im socially awkward + quite sensitive!! i can take a lot of things to heart! Please be patient with me.( **C+H and INT freely** tho, much love!!,, unless pony name say otherwise,,,,er)
 
-*heavy yuki maeda (sdra2) kin* - i kin others too ,  kinji uehara n medkit for example
-
  dni dwfandom unless friends, basic dni criteria tbh just dont be an asshole and youre good to go . 18+ iwcuf, romantic tsurugi doubles iwec
 
-my interests change a lot but atm im very into alnst, phighting, dra/sdra2 and drdt !! - you can find me near the alnst or danganronpa area . 
+my interests change a lot but atm im very into Phighting, alnst, dra/sdra2 and drdt !! - you can find me near the danganronpa area . 
 
 ----------
 
