@@ -15,7 +15,7 @@ my interests change a lot but atm im very into Phighting, alnst, dra/sdra2 and d
 
 my other socials go by the same name (placehold7r)
 
-im a heavy yuki maeda/medkit kin idk what else to put here man , uhm. medkit selfcest who cheered 
+im a heavy yuki maeda/medkit kin idk what else to put here man , uhm.
 
 
 <img width="101" height="57" alt="IMG_3930" src="https://github.com/user-attachments/assets/66d58806-6870-4c96-957a-d4a4c4b5b67c" />
