@@ -18,7 +18,7 @@ pfp : legalizesendingnukes on pin, medboarder on tiktok okay? okay
 my other socials go by the same name (placehold7r) 
 
 
-<img width="99" height="57" alt="IMG_3928" src="https://github.com/user-attachments/assets/8c6d0470-a44e-4f0d-9c33-3c413ee8bc32" />
+
 <img width="101" height="57" alt="IMG_3930" src="https://github.com/user-attachments/assets/66d58806-6870-4c96-957a-d4a4c4b5b67c" />
 
 
