@@ -15,7 +15,7 @@ Im socially awkward + quite sensitive . I can and will take a lot of things to h
 
  dni dwfandom unless friends, basic dni criteria tbh just dont be an asshole and youre good to go . 18+ iwcuf, romantic tsurugi doubles iwec
 
-my interests change a lot but atm im very into Phighting, alnst, dra/sdra2 and drdt !! - you can find me near the danganronpa area . 
+my interests change a lot but atm im very into Phighting, alnst, dra/sdra2 and drdt !! - you can find me near the danganronpa area . mainly with party tho 
 
 ----------
 
