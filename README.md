@@ -7,22 +7,22 @@
 
 
 
-**BEVEN . YUKI . MED** , HE / PUP 
+$${\color{cyan} \text{BEVEN. YUKI. MED , HE/PUP}}$$
 
-i tend to follow after a glance at profiles yay
 
-Im socially awkward + quite sensitive . I can and will take a lot of things to heart, ( **C+H and INT freely** tho,👀👀hi👀👀👀 )
+###### i tend to follow after a glance at profiles yay
 
- dni dwfandom unless friends, basic dni criteria tbh just dont be an asshole and youre good to go . 18+ iwcuf, romantic tsurugi doubles iwec
+###### Im socially awkward + quite sensitive . I can and will take a lot of things to heart, ( **C+H and INT freely** tho,👀👀hi👀👀👀 )
 
-my interests change a lot but atm im very into Phighting, alnst, dra/sdra2 and drdt !! - you can find me near the danganronpa area . mainly with party tho 
+ **dni dwfandom unless friends**, basic dni criteria tbh just dont be an asshole and youre good to go . 18+ iwcuf, romantic tsurugi doubles iwec
+
+###### my interests change a lot but atm im very into Phighting, alnst, dra/sdra2 and drdt !! - you can find me near the danganronpa area . mainly with party tho 
 
 ----------
 
-my other socials go by the same name (placehold7r)
+###### my other socials go by the same name (placehold7r)
 
-im a heavy yuki maeda/medkit kin (with a side of postman from nostalgic hangout) idk what else to put here man , uhm. idk how to make this look pretty
-
+###### im a heavy yuki maeda/medkit kin (with a side of postman from nostalgic hangout) idk what else to put here man , uhm.
 
 
 
