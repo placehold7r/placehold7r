@@ -7,7 +7,7 @@
 
 
 
-$${\color{cyan} \text{BEVEN. YUKI. MED , HE/PUP}}$$
+$${\color{cyan} \text{BEVEN/YUKI/MED , HE/PUP PRNS}}$$
 
 
 ###### i tend to follow after a glance at profiles yay
