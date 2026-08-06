@@ -22,7 +22,7 @@ $${\color{cyan} \text{BEVEN|YUKI|MED, HE/PUP}}$$
 
 ###### my other socials go by the same name (placehold7r)
 
-###### im a heavy yuki maeda/medkit kin (with a side of postman from nostalgic hangout) idk what else to put here man , uhm. oh yh ignore the little link icons if they’re there , they don’t go anywhere
+###### im a heavy yuki maeda/medkit kin. idk what else to put here man , uhm. oh yh ignore the little link icons if they’re there , they don’t go anywhere
  
 
 
