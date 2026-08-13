@@ -16,7 +16,7 @@ $${\color{cyan} \text{BEVEN|YUKI|MED, HE/PUP}}$$
 
  ###### !!**dni dwfandom unless friends**!!, basic dni criteria tbh just dont be an asshole and youre good to go . 18+ iwcuf, romantic tsurugi doubles iwec
 
-###### my interests change a lot but atm im very into Phighting, milgram, dra/sdra2 and drdt !! - you can find me near the danganronpa area . mainly with party tho 
+###### my interests change a lot but atm im very into Phighting, milgram, and dra/sdra2 !! - you can find me near the danganronpa area . mainly with party tho 
 
 ----------
 
