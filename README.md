@@ -22,8 +22,7 @@ $${\color{cyan} \text{BEVEN|YUKI, HE/PUP}}$$
 
 ###### my other socials go by the same name (placehold7r)
 
-###### im a heavy yuki maeda/medkit kin. idk what else to put here man , uhm. oh yh ignore the little link icons if they’re there , they don’t go anywhere
- 
+$${\color{orange} \text{@pt-walk-of-fame I wonder who pt’s yuki maeda is 🤔}}$$
 
 
 
