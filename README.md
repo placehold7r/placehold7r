@@ -1,7 +1,6 @@
 
 
-
-<img width="350" height="240" alt="copy_FE66EC96-0098-47D4-A09A-2B57FFA868B7" src="https://github.com/user-attachments/assets/430728ff-2eb1-420c-810e-c83ddfba403" /> 
+<img width="344" height="240" alt="copy_FE66EC96-0098-47D4-A09A-2B57FFA868B7" src="https://github.com/user-attachments/assets/ed71c779-2ce2-4c3d-a5da-73d143058c63" />
 <img width="110" height="60" alt="IMG_4284" src="https://github.com/user-attachments/assets/7e6c2308-402f-4e4e-b053-e0c16943e8f4" />
 <img width="110" height="60" alt="IMG_4290" src="https://github.com/user-attachments/assets/b09c13fd-c311-4177-889b-82344610c22b" />
 
@@ -15,7 +14,7 @@
 
 
 $${\color{9DC6E5} \text{BEVEN|MAEDA, HE/PUP}}$$
- $${\color{476C87} \text{”Hey now, I saved you right? So why in the hell are you crying?”}}$$
+ $${\color{476C87} \text{”It couldn’t be helped, I’m DOUBLE. (MeMe)”}}$$
 
 
 ###### i tend to follow after a glance at profiles yay
