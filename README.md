@@ -23,7 +23,7 @@ $${\color{9DC6E5} \text{BEVEN|MAEDA, HE/PUP}}$$
 
  ###### !!**dni dwfandom**!!, basic dni criteria tbh just dont be an asshole and youre good to go . over 16 iwcuf, romantic tsurugi doubles iwec/dniuc
 
-###### my interests change a lot but atm im very into pjighting, milgram, and dra/sdra2 !! - you can find me near the danganronpa area . mainly with party 
+###### my interests change a lot but atm im very into phighting, milgram, and dra/sdra2 !! - you can find me near the danganronpa area . mainly with party 
 ----------
 
 ###### my other socials go by the same name (placehold7r)
