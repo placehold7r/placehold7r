@@ -8,6 +8,7 @@
 $${\color{9DC6E5} \text{BEVEN|MAEDA, HE/PUP}}$$
  $${\color{476C87} \text{”It couldn’t be helped, I’m DOUBLE. (MeMe)”}}$$
 
+###### infp 4w3 sp/sx 496 . eve psyche & the bluebeards by le sserafim starts playing
 
 ###### i tend to follow after a glance at profiles yay
 
