@@ -21,12 +21,7 @@ $${\color{9DC6E5} \text{BEVEN|MAEDA, HE/PUP}}$$
 
 ###### my other socials go by the same name (placehold7r)
 
-$${\color{orange} \text{@pt-walk-of-fame  hey I know that guy }}$$
-
-<img width="713" height="120" alt="IMG_4204" src="https://github.com/user-attachments/assets/e30ee891-ae3a-4bb0-99f4-8305489e9dd3" />
- 
- ###### TYYYY!!
-
+@pt-walk-of-fame : ponytowns yuki maeda! (SDRA2)
 
 
 
