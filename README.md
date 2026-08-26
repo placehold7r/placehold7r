@@ -21,7 +21,7 @@ $${\color{9DC6E5} \text{BEVEN|MAEDA, HE/PUP}}$$
 
 ###### my other socials go by the same name (placehold7r)
 
-@pt-walk-of-fame : ponytowns yuki maeda! (SDRA2)
+###### @pt-walk-of-fame : ponytowns yuki maeda! (SDRA2)
 
 
 
