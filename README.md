@@ -7,20 +7,25 @@
 $${\color{9DC6E5} \text{BEVEN|MAEDA, HE/PUP}}$$
  $${\color{476C87} \text{”It couldn’t be helped, I’m DOUBLE. (MeMe)”}}$$
 
-###### infp 4w5 (w3? idfk) sp/sx 496 R[L]ua/I/ EVFL.  im a mess mess mess mess mess im a mess mess mess /lyrc 
-
-###### i tend to follow after a glance at profiles yay
-
-###### Im socially awkward + quite sensitive . I can and will take a lot of things to heart, ( **C+H and INT freely** tho,👀👀hi👀👀👀 )
-
- ###### !!**dni dwfandom**!!, basic dni criteria tbh just dont be an asshole and youre good to go . i block/hide very freely!
- 
-###### my interests change a lot but atm im very into phighting, milgram, and dra/sdra2 !! - you can find me near the danganronpa area . mainly with party 
 ----------
 
-###### my other socials go by the same name (placehold7r)
+ $${\color{C7D5E6} \text{infp 4w5 sp/sx 496 R[L]ua/I/ EVFL.  im a mess mess mess mess mess /lyrc}}$$
+ 
+$${\color{A0B2CD} \text{i tend to follow after a glance at profiles yay}}$$
 
-###### @pt-walk-of-fame : ponytowns yuki maeda! (SDRA2)
+ $${\color{8496B6} \text{Im socially awkward + quite sensitive . I can and will take a lot of things to heart, C+H and INT freely tho,👀👀hi👀👀}}$$
+
+ $${\color{707CA0} \text{!!**dni dwfandom**!!, otherwise, basic dni -  i block/hide very freely!}}$$
+ 
+$${\color{525986} \text{my interests change a lot but atm im very into phighting, milgram, and dra/sdra2 !! - you can find me near the danganronpa area . im mainly with my party [whos at deltarune area]}}$$
+
+----------
+
+$${\color{B6404E} \text{my other socials go by the same username as here . im more active on tiktok tho,,,, and thats also where i answer sp gimmicks!!oooo}}$$
+
+$${\color{C33743} \text{@pt-walk-of-fame : ponytowns yuki maeda! (SDRA2)}}$$
+
+
 
 
 
