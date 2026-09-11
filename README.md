@@ -17,7 +17,7 @@ $${\color{A0B2CD} \text{i tend to follow after a glance at profiles yay}}$$
 
  $${\color{707CA0} \text{!!**dni dwfandom**!!, otherwise, basic dni -  i block/hide very freely!}}$$
  
-$${\color{525986} \text{my interests change a lot but atm im very into phighting, milgram, and dra/sdra2 !! - you can find me near the danganronpa area . im mainly with my party [whos at deltarune area]}}$$
+$${\color{525986} \text{my interests change a lot but atm im very into phighting, milgram, and dra/sdra2 !! - you can find me near the danganronpa area . im mainly with my party}}$$
 
 ----------
 
