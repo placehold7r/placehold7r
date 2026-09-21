@@ -11,7 +11,7 @@ $${\color{9DC6E5} \text{BEVEN|MAEDA, HE/PUP}}$$
 
  $${\color{C7D5E6} \text{infp 4w5 sp/sx 496 R[L]ua/I/ EVFL.  im a mess mess mess mess mess /lyrc}}$$
  
-$${\color{A0B2CD} \text{i tend to follow after a glance at profiles yay}}$$
+$${\color{A0B2CD} \text{i tend to follow back I just check profiles first Ok? ok}}$$
 
  $${\color{8496B6} \text{Im socially awkward + quite sensitive . I can and will take a lot of things to heart, C+H and INT freely tho,👀👀hi👀👀}}$$
 
