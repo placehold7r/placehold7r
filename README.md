@@ -24,6 +24,7 @@ $${\color{blue} \text{my other socials go by the same username as here . im more
 
 $${\color{3F3CF7} \text{@pt-walk-of-fame , @pt-heavyfictkin : ponytowns yuki maeda! (SDRA2)}}$$
 
+Just realized the colors make up the aroace flag😭😭It was not intentional i swear im a gay transman 
 
 
 
