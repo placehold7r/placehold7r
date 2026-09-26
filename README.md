@@ -1,29 +1,28 @@
+<img width="99" height="56" alt="IMG_6603" src="https://github.com/user-attachments/assets/791c905e-f715-4dfc-8e65-fe294eb361c2" />
+<img width="99" height="56" alt="IMG_6602" src="https://github.com/user-attachments/assets/e187fccd-f423-4add-b504-173265073222" />
+<img width="99" height="56" alt="IMG_6601" src="https://github.com/user-attachments/assets/4dfa8ebe-f173-40e9-87fb-7fbd2c90c198" />
 
 
-<img width="344" height="240" alt="copy_542CBF77-E580-445E-A8BD-94179A188FED" src="https://github.com/user-attachments/assets/6c65f092-3b5b-450d-b84a-ce4604b494dc" />
-<img width="110" height="60" alt="IMG_4284" src="https://github.com/user-attachments/assets/2cb98ab7-a12a-4dda-be0d-005ece5a2764" /> 💟
-<img width="110" height="60" alt="IMG_4290" src="https://github.com/user-attachments/assets/b09c13fd-c311-4177-889b-82344610c22b" />
+$${\color{yellow} \text{BEVEN|MAEDA, HE/PUP}}$$
 
-$${\color{9DC6E5} \text{BEVEN|MAEDA, HE/PUP}}$$
- $${\color{476C87} \text{”It couldn’t be helped, I’m DOUBLE. (MeMe)”}}$$
 
 ----------
 
- $${\color{C7D5E6} \text{infp 4w5 sp/sx 496 R[L]ua/I/ EVFL.  im a mess mess mess mess mess /lyrc}}$$
+ $${\color{FFCB4A} \text{infp 4w5 sp/sx 496 IEI R[L]ua/I/ a/O/[T]iDeg Mel-Phleg EVFL IF(N) Neutral Good.  im a mess mess mess mess mess /lyrc}}$$
  
-$${\color{A0B2CD} \text{i tend to follow back I just check profiles first Ok? ok}}$$
+$${\color{FFDE7E} \text{i tend to follow back I just check profiles first Ok? ok}}$$
 
- $${\color{8496B6} \text{Im socially awkward + quite sensitive . I can and will take a lot of things to heart, C+H and INT freely tho,👀👀hi👀👀}}$$
+ $${\color{FFF2D1} \text{Im socially awkward + quite sensitive . I can and will take a lot of things to heart, C+H and INT freely tho,👀👀hi👀👀}}$$
 
- $${\color{707CA0} \text{!!**dni dwfandom**!!, otherwise, basic dni -  i block/hide very freely!}}$$
+ $${\color{FFF8E6} \text{!!**dni dwfandom**!!, otherwise, basic dni -  i block/hide very freely!}}$$
  
-$${\color{525986} \text{my interests change a lot but atm im very into phighting, milgram, and dra/sdra2 !! - you can find me near the danganronpa area . im mainly with my party}}$$
+$${\color{white} \text{my interests change a lot but atm im very into phighting, milgram, and dra/sdra2 !! - you can find me near the danganronpa area . im mainly with my party}}$$
 
 ----------
 
-$${\color{B6404E} \text{my other socials go by the same username as here . im more active on tiktok tho,,,, and thats also where i answer sp gimmicks!!oooo}}$$
+$${\color{blue} \text{my other socials go by the same username as here . im more active on tiktok tho,,,, and thats also where i answer sp gimmicks!!oooo}}$$
 
-$${\color{C33743} \text{@pt-walk-of-fame : ponytowns yuki maeda! (SDRA2)}}$$
+$${\color{3F3CF7} \text{@pt-walk-of-fame : ponytowns yuki maeda! (SDRA2)}}$$
 
 
 
