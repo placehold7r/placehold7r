@@ -16,7 +16,7 @@ $${\color{FFDE7E} \text{i tend to follow back I just check profiles first Ok? ok
 
  $${\color{FFF8E6} \text{!!**dni dwfandom**!!, otherwise, basic dni -  i block/hide very freely!}}$$
  
-$${\color{white} \text{my interests change a lot but atm im very into phighting, milgram, and dra/sdra2 !! - you can find me near the danganronpa area . im mainly with my party}}$$
+$${\color{white} \text{my interests change a lot but atm im very into fact attack adventures, phighting, milgram, and dra/sdra2 !! - you can find me near the danganronpa area . im mainly with my party}}$$
 
 ----------
 
