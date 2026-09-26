@@ -22,7 +22,7 @@ $${\color{white} \text{my interests change a lot but atm im very into phighting,
 
 $${\color{blue} \text{my other socials go by the same username as here . im more active on tiktok tho,,,, and thats also where i answer sp gimmicks!!oooo}}$$
 
-$${\color{3F3CF7} \text{@pt-walk-of-fame : ponytowns yuki maeda! (SDRA2)}}$$
+$${\color{3F3CF7} \text{@pt-walk-of-fame , @pt-heavyfictkin : ponytowns yuki maeda! (SDRA2)}}$$
 
 
 
