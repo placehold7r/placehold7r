@@ -4,28 +4,28 @@
 
 
 
-$${\color{yellow} \text{BEVEN|MAEDA, HE/PUP}}$$
+$${\color{white} \text{BEVEN|MAEDA, HE/PUP}}$$
 
 
 ----------
 
- $${\color{FFCB4A} \text{infp 4w5 sp/sx 496 IEI R[L]ua/I/ a/O/[T]iDeg Mel-Phleg EVFL IF(N) Neutral Good.  im a mess mess mess mess mess /lyrc}}$$
+ $${\color{lightblue} \text{infp 4w5 sp/sx 496 IEI R[L]ua/I/ a/O/[T]iDeg Mel-Phleg EVFL IF(N) Neutral Good.  im a mess mess mess mess mess /lyrc}}$$
  
-$${\color{FFDE7E} \text{i tend to follow back I just check profiles first Ok? ok}}$$
+$${\color{lightpink} \text{i tend to follow back I just check profiles first Ok? ok}}$$
 
- $${\color{FFF2D1} \text{Im socially awkward + quite sensitive . I can and will take a lot of things to heart, C+H and INT freely tho,👀👀hi👀👀}}$$
+ $${\color{pink} \text{Im socially awkward + quite sensitive . I can and will take a lot of things to heart, C+H and INT freely thoHi I’m mainly with party or with a friend,, }}$$
 
- $${\color{FFF8E6} \text{!!**dni dwfandom**!! [and over 21 unless friends or i do], otherwise, basic dni -  i block/hide very freely!}}$$
+ $${\color{white} \text{!!**dni dwfandom**!! [and over 21 unless friends or i do], otherwise, basic dni -  i block/hide very freely!}}$$
  
-$${\color{white} \text{my interests change a lot but atm im very into fact attack adventures, phighting, milgram, and dra/sdra2 !! . im mainly with my party or with a friend}}$$
+$${\color{lightpink} \text{im into a bunch of things but atm my main interests are spooky month, fact attack adventures, phighting, milgram, and dra/sdra2 !}}$$
 
 ----------
 
-$${\color{blue} \text{my other socials go by the same username as here . im more active on tiktok tho,,,, and thats also where i answer sp gimmicks!!oooo}}$$
+$${\color{pink} \text{my other socials go by the same username as here . im more active on tiktok tho,,,, and thats also where i answer sp gimmicks!!oooo}}$$
 
-$${\color{3F3CF7} \text{@pt-walk-of-fame , @pt-heavyfictkin : ponytowns yuki maeda! (SDRA2)}}$$
+$${\color{lightblue} \text{@pt-walk-of-fame , @pt-heavyfictkin : ponytowns yuki maeda! (SDRA2)}}$$
 
-I will Kevin-fy this soon I promise
+
 
 
 
