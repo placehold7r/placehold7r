@@ -13,7 +13,7 @@ $${\color{white} \text{BEVEN|MAEDA, HE/PUP}}$$
  
 $${\color{lightpink} \text{i tend to follow back I just check profiles first Ok? ok}}$$
 
- $${\color{pink} \text{Im socially awkward + quite sensitive . I can and will take a lot of things to heart, C+H and INT freely thoHi I’m mainly with party or with a friend,, }}$$
+ $${\color{pink} \text{Im socially awkward + quite sensitive . I can and will take a lot of things to heart, C+H and INT freely thoHi Hi hi im nice }}$$
 
  $${\color{white} \text{!!**dni dwfandom**!! [and over 21 unless friends or i do], otherwise, basic dni -  i block/hide very freely!}}$$
  
