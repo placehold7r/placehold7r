@@ -4,14 +4,13 @@
 
 
 
-$${\color{white} \text{BEVEN|MAEDA, HE/PUP}}$$
+$${\color{lightblue} \text{BEVEN|MAEDA, HE/PUP}}$$
 
 
 ----------
 
- $${\color{lightblue} \text{infp 4w5 sp/sx 496 IEI R[L]ua/I/ a/O/[T]iDeg Mel-Phleg EVFL IF(N) Neutral Good.  im a mess mess mess mess mess /lyrc}}$$
+ $${\color{lightpink} \text{infp 4w5 sp/sx 496 IEI R[L]ua/I/ a/O/[T]iDeg Mel-Phleg EVFL IF(N) Neutral Good.  im a mess mess mess mess /lyrc}}$$
  
-$${\color{lightpink} \text{i tend to follow back I just check profiles first Ok? ok}}$$
 
  $${\color{pink} \text{Im socially awkward + quite sensitive . I can and will take a lot of things to heart, C+H and INT freely thoHi Hi hi im nice }}$$
 
