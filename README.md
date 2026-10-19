@@ -16,7 +16,7 @@ $${\color{lightblue} \text{BEVEN|MAEDA, HE/PUP}}$$
 
  $${\color{white} \text{!!**dni dwfandom**!! [and over 21 unless friends or i do], otherwise, basic dni -  i block/hide very freely!}}$$
  
-$${\color{lightpink} \text{im into a bunch of things but atm my main interests are spooky month, fact attack adventures, phighting, milgram, and dra/sdra2 !}}$$
+$${\color{lightpink} \text{im into a bunch of things but atm my main interests are eddsworld, spooky month, phighting, milgram, and dra/sdra2 !}}$$
 
 ----------
 
