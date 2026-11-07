@@ -2,7 +2,7 @@
 
 $${\color{darkred} \text{"What would I need friends for when I have THIS? I’m UNSTOPPABLE!"}}$$
 
-${\color{darkred} \text{BEVEN|MAEDA, HE/PUP}}$$
+${\color{darkred} \text{BEVEN|MAEDA, HE/PUP}}$
 
 
 ----------
