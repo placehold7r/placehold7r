@@ -1,6 +1,6 @@
 
 
-$${\color{dakred} \text{"What do I need friends for when I have THIS? I’m UNSTOPPABLE!"}}$$
+$${\color{darkred} \text{"What do I need friends for when I have THIS? I’m UNSTOPPABLE!"}}$$
 
 ${\color{530100} \text{BEVEN|MAEDA, HE/PUP}}$
 
