@@ -18,9 +18,9 @@ $${\color{red} \text{im into a bunch of things but atm my main interests are edd
 
 ----------
 
-$${\color{lightred} \text{my other socials go by the same username as here . im more active on tiktok tho,,,, and thats also where i answer sp gimmicks!!oooo}}$$
+$${\color{FF5451} \text{my other socials go by the same username as here . im more active on tiktok tho,,,, and thats also where i answer sp gimmicks!!oooo}}$$
 
-$${\color{lightred} \text{@pt-walk-of-fame , @pt-heavyfictkin : ponytowns yuki maeda! (SDRA2)}}$$
+$${\color{FF5451} \text{@pt-walk-of-fame , @pt-heavyfictkin : ponytowns yuki maeda! (SDRA2)}}$$
 
 
 
